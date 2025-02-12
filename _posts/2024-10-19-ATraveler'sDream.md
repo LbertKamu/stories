@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "A traveler's dream"
-categories: Stories
+categories: Stories.
 ---
 
 

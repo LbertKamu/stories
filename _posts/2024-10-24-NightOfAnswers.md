@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Night Of Answers"
-categories: Stories
+categories: Stories.
 ---
 
 
