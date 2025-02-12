@@ -1,9 +1,11 @@
 ---
 layout: post
 title: "A traveler's dream"
-categories: Stories.
+categories: Thought, thinker and the prison of the self.
 ---
 
+
+---
 
 
 

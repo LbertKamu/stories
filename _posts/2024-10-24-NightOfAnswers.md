@@ -1,9 +1,11 @@
 ---
 layout: post
 title: "Night Of Answers"
-categories: Stories.
+categories: Thought, thinker and the prison of the self.
 ---
 
+
+---
 
 
 Would you marry a girl who has three breasts? asked May Kasahara. Reading Murakami is a weird feeling but somehow I like his work. Enough reading for today. It's midnight and I have a running  fever, but my reading ritual is as important as my health. I am drowning  in my bed, tightly tucked in my blanket. The rain is pouring outside. My eyes are heavy and I am burning and sweating. I place my mobile phone beside my head. "I should use my tab for the reading" I thought as my eyes are straining. My phone buzzes twice. I know right away that someone is messaging me. I thought of leaving it for the next morning but What if someone needs me. I quickly grab my phone and check the message. It's from Megha, a girl I knew from my college. She is asking me how life is treating me right now.
